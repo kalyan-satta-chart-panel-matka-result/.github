@@ -87,4 +87,144 @@
 
 ---
 
+# JodiPanels Timings
+
+## Table of Contents
+- [MILAN MORNING](#milan-morning)
+- [SRIDEVI](#sridevi)
+- [KALYAN MORNING](#kalyan-morning)
+- [PADMAVATHI](#padmavathi)
+- [MADHURI](#madhuri)
+- [RAJDHANI MORNING [main]](#rajdhani-morning-main)
+- [SRIDEVI MORNING](#sridevi-morning)
+- [MAHARANI](#maharani)
+- [KARNATAKA DAY](#karnataka-day)
+- [TIME BAZAR MORNING](#time-bazar-morning)
+- [TIME BAZAR](#time-bazar)
+- [TARA MUMBAI DAY](#tara-mumbai-day)
+- [PRABHAT](#prabhat)
+- [DIAMOND](#diamond)
+- [TIME BAZAR DAY](#time-bazar-day)
+- [BK BAZAR](#bk-bazar)
+- [MILAN DAY](#milan-day)
+- [MAIN BAZAR DAY](#main-bazar-day)
+- [PUNA BAZAR](#puna-bazar)
+- [KALYAN](#kalyan)
+- [SRIDEVI NIGHT](#sridevi-night)
+- [DIAMOND NIGHT](#diamond-night)
+- [MADHURI NIGHT](#madhuri-night)
+- [NIGHT TIME BAZAR](#night-time-bazar)
+- [TARA MUMBAI NIGHT](#tara-mumbai-night)
+- [MILAN NIGHT](#milan-night)
+- [RAJDHANI NIGHT](#rajdhani-night)
+
+## MILAN MORNING
+- 359-77-890
+- 10:15 AM - 11:15 AM
+
+## SRIDEVI
+- 349-61-146
+- 11:35 AM - 12:35 PM
+
+## KALYAN MORNING
+- 567-87-359
+- 11:00 AM - 12:02 PM
+
+## PADMAVATHI
+- 168-50-389
+- 11:40 AM - 12:40 PM
+
+## MADHURI
+- 179-71-579
+- 11:45 AM - 12:45 PM
+
+## RAJDHANI MORNING [main]
+- 400-44-455
+- 11:25 AM - 12:55 PM
+
+## SRIDEVI MORNING
+- 455-40-569
+- 09:30 AM - 10:30 AM
+
+## MAHARANI
+- 568-95-159
+- 12:15 PM - 02:15 PM
+
+## KARNATAKA DAY
+- 577-90-235
+- 10:00 AM - 11:00 AM
+
+## TIME BAZAR MORNING
+- 138-28-990
+- 11:10 AM - 12:10 PM
+
+## TIME BAZAR
+- 112-43-166
+- 01:10 PM - 02:10 PM
+
+## TARA MUMBAI DAY
+- 158-4
+- 01:35 PM - 03:00 PM
+
+## PRABHAT
+- 257-4
+- 01:30 PM - 03:00 PM
+
+## DIAMOND
+- 237-2
+- 01:30 PM - 03:00 PM
+
+## TIME BAZAR DAY
+- 179-7
+- 02:00 PM - 04:00 PM
+
+## BK BAZAR
+- 370-0
+- 02:00 PM - 04:00 PM
+
+## MILAN DAY
+- 239-40-479
+- 03:20 PM - 05:20 PM
+
+## MAIN BAZAR DAY
+- 270-99-577
+- 03:35 PM - 05:35 PM
+
+## PUNA BAZAR
+- 488-0
+- 01:15 PM - 03:15 PM
+
+## KALYAN
+- 280-04-239
+- 03:45 PM - 05:45 PM
+
+## SRIDEVI NIGHT
+- 589-28-125
+- 07:15 PM - 08:15 PM
+
+## DIAMOND NIGHT
+- 235-09-234
+- 08:00 PM - 09:00 PM
+
+## MADHURI NIGHT
+- 147-26-178
+- 06:45 PM - 07:45 PM
+
+## NIGHT TIME BAZAR
+- 900-95-456
+- 08:35 PM - 10:35 PM
+
+## TARA MUMBAI NIGHT
+- 400-41-380
+- 08:30 PM - 10:30 PM
+
+## MILAN NIGHT
+- 110-24-266
+- 09:10 PM - 11:10 PM
+
+## RAJDHANI NIGHT
+- 100-15-348
+- 09:35 PM - 11:45 PM
+
+
 **Disclaimer -** यहां पर दी गई जानकारी सिर्फ इंटरटेनमेंट के लिए है हम किसी भी जानकारी को प्रमाणित नहीं करते हैं हमारा वेबसाइट किसी भी सट्टा किंग गाजियाबाद से जुड़ा हुआ नहीं है जुआ खेलना या लगाना कानूनन अपराध है जिसके लिए आप के ऊपर कानूनी कार्रवाई हो सकती है हम सट्टा किंग गाजियाबाद सट्टा मटका को पूर्ण रूप से विरोध करते हैं.
